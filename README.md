@@ -22,6 +22,7 @@ Wat vond ik lastig en hoe heb ik dat aangepakt?
 Hoe verliep de samenwerking?
 
 - ...
+  
 Hoe hebben wij de taken verdeeld?
 
 - ...
