@@ -7,9 +7,9 @@ Wij hebben een website bedacht waardoor het makkelijker en leuker wordt om een o
 
 **Reflectie Selina Lara Aydin:**
 
-Wat heb ik geleerd? --> 
+Wat heb ik geleerd?
 
-- Dat dhdhdhdh
+- ...
 
 Één techniek of concept dat ik goed heb leren gebruiken:
 - 
