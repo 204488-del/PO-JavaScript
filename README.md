@@ -7,30 +7,31 @@ Wij hebben een website bedacht waardoor het makkelijker en leuker wordt om een o
 
 **Reflectie Selina Lara Aydin:**
 
-Wat heb ik geleerd? -->
-- Dat dhdhdhdh
+Wat heb ik geleerd? --> 
+Dat dhdhdhdh
+
 Één techniek of concept dat ik goed heb leren gebruiken:
-- /
+- 
 Wat vond ik lastig en hoe heb ik dat aangepakt?
-- /
+- 
 Hoe verliep de samenwerking?
-- /
+- 
 Hoe hebben wij de taken verdeeld?
-- /
+- 
 Wat ging goed en wat had beter gekund?
-- /
+- 
 Welke keuzes heb ik gemaakt?
-- /
+- 
 Waarom hebben wij dit onderwerp gekozen?
-- /
+- 
 Één belangrijke ontwerpkeuze en waarom ik deze heb gemaakt:
-- /
+- 
 Hoe kijk ik terug op mijn eigen inzet?
-- /
+- 
 Waar ben ik trots op?
-- /
+- 
 Wat ik anders zou doen bij een volgend project:
-- /
+- 
 
 
 
