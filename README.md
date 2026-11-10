@@ -9,7 +9,7 @@ Wij hebben een website bedacht waardoor het makkelijker en leuker wordt om een o
 
 Wat heb ik geleerd? --> 
 
-Dat dhdhdhdh
+- Dat dhdhdhdh
 
 Één techniek of concept dat ik goed heb leren gebruiken:
 - 
